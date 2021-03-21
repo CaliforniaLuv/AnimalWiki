@@ -25,7 +25,7 @@ Where can you find 😺 🙉 🦊 🐯 🐷 information on animals you are inter
 
 Are you looking through the encyclopedia hard these days? 🤦 🤦‍♀
 
-Find information through AnimalWiki here 🏛 now.🔎
+Find information through AnimalWiki 🏛 here now.🔎
 
 Experts who are interested in as many animals as you 👫 are sharing information 
 
