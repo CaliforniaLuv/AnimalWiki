@@ -1,0 +1,2 @@
+C:\Users\Inthetech\source\repos\animalwiki\Debug\animalwiki.exe
+C:\Users\Inthetech\source\repos\animalwiki\Debug\animalwiki.pdb
